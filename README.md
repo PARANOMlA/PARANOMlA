@@ -16,11 +16,14 @@
     <br>
     dni<b>uf</b>.
     <br>
-  <br>
-   i am an elliot main and i love him more than you roflcopter. Bi.
-  <br>im twotime im twotime please pet my hair im twotime im twotime please please please
-    <br><br>
     <b>-15</b> dni.
+      <br>
+        <br>
+          <br>
+ tfw im told to stop vaping in the sped bathrooms 
+ <br>
+   <img src=https://files.catbox.moe/vkrxnb.gif width=350>
+ 
 
     
 </div> `
