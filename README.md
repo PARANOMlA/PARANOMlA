@@ -23,7 +23,9 @@
  tfw im told to stop vaping in the sped bathrooms 
  <br>
    <img src=https://files.catbox.moe/vkrxnb.gif width=350>
- 
+   <br>  
+     <br>
+     I DONT KNOW HOW TO ADD IMAGES TO GITHUB IGNORE THE ELLIOT THEME!!!!!
 
     
 </div> `
