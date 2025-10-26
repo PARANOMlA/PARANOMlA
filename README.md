@@ -1,5 +1,5 @@
 ` <div align=center>
-<h1><img src=https://files.catbox.moe/nvg573.gif width=40> "<b> i'd slit my throat with a smile on my face if it meant i could ever get out "</b> <img src=https://files.catbox.moe/nvg573.gif width=40></h1>
+<h1><img src=https://files.catbox.moe/nvg573.gif width=40> "<b> write your name in blood on every wall "</b> <img src=https://files.catbox.moe/nvg573.gif width=40></h1>
        <br>
            <br>
             <b>i am in a depressive episode please do not be mean ok?</b>
