@@ -1,5 +1,5 @@
 ` <div align=center>
-<h1><img src=https://files.catbox.moe/nvg573.gif width=40> "<b> had the worse time chasing the thought away ... "</b> <img src=https://files.catbox.moe/nvg573.gif width=40></h1>
+<h1><img src=https://files.catbox.moe/nvg573.gif width=40> "<b> i'd slit my throat with a smile on my face if it meant i could ever get out "</b> <img src=https://files.catbox.moe/nvg573.gif width=40></h1>
        <br>
            <br>
     <b>paracistic</b>ㅤ╰ㅤ
