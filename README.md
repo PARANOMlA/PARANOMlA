@@ -2,10 +2,7 @@
 <h1><img src=https://files.catbox.moe/nvg573.gif width=40> "<b> write your name in blood on every wall— "</b> <img src=https://files.catbox.moe/nvg573.gif width=40></h1>
        <br>
            <br>
-            <b>i am in a depressive episode please do not be mean ok?</b>
-              <br>
-           <br>
-    <b>paracistic</b>ㅤ╰ㅤ
+            <b>paracistic</b>ㅤ╰ㅤ
     <img src=https://files.catbox.moe/eo21ji.gif width=20> <sup> <b>BPD</b> </sup>+<sub> <b>empathy disorder</b></sub> <img src="https://files.catbox.moe/vjpmcv.gif" width=20>
     <br>
     <img src=https://files.catbox.moe/1gpgas.gif width=20> <b>she </b>\<b> her</b>ㅤ, 1<s>8-</s>years <img src=https://files.catbox.moe/1gpgas.gif width=20>
